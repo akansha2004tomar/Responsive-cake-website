@@ -5,5 +5,3 @@
 ![Screenshot (42)](https://github.com/user-attachments/assets/6d46f840-1155-40ad-8ac8-e11b40b16b2a)
 
 ![Screenshot (45)](https://github.com/user-attachments/assets/94f2e732-515a-4ca5-974f-7a7a4391d531)
-
-![Screenshot (46)](https://github.com/user-attachments/assets/8f1d1620-0742-44df-adb5-e734bd813e9a)
